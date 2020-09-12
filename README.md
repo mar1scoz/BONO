@@ -1,2 +1,2 @@
 Nombre: Marianna Velasco 
-Merezco el bono 
+Bono: +1
